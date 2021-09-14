@@ -1,4 +1,6 @@
-Name @SDDantes. Also MirrDark, actually used more commonly.
+Name @SDDantes. 
+
+A Common coder, Nothing special.
 
 
 <!---
